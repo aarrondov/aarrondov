@@ -27,7 +27,7 @@ Mi camino en el desarrollo ha sido impulsado por un deseo constante de aprender 
 
 ## ⭐ Recomendaciones
 
-Tengo la fortuna de contar con recomendaciones de todos mis superiores. Pueden comprobarlas en la sección de "Recomendaciones" de mi [perfil de LinkedIn](https://www.linkedin.com/in/aritzarrondo).
+Tengo la fortuna de contar con recomendaciones de todos mis superiores. Pueden comprobarlas en la sección de "Recomendaciones" de mi [perfil de LinkedIn](https://www.linkedin.com/in/aritz-arrondo-villaplana/).
 
 ## 🎯 Objetivo
 
